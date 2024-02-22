@@ -1,1 +1,1 @@
-# 2024s_qtm350_ps01
+# 2024s_qtm350_ps01QTM 350 PS1 Team NLZ
