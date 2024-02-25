@@ -1,1 +1,1 @@
-Young people are eating less these days.
+young People are eating less.
